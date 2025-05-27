@@ -11,4 +11,6 @@ I started off looking for monitors that I could use for the display of my smart 
 
 ![](https://m.media-amazon.com/images/I/71RTruFctrL._AC_SX466_.jpg)
 
-I also started looking for someone two-way
+I also started looking for some mirror film and found it on Amazon https://a.co/d/hO9mkkn.
+
+### **Time spent 2hr**
